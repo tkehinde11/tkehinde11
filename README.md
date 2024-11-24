@@ -3,7 +3,7 @@
 📍 London, UK  
 📧 Email: tkehinde@live.com   
 🔗 LinkedIn: [Toyosi Kehinde](https://linkedin.com/in/toyosikehinde)  
-👨‍💻 GitHub: [Toyosi Kehinde](https://github.com/tkehinde11)
+👨‍💻 GitHub: [tkehinde11](https://github.com/tkehinde11)
 
 ---
 
